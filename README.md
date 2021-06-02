@@ -1,1 +1,1 @@
-# Sandrasung1004.github.io
+Map of My Favorite Places in the US
